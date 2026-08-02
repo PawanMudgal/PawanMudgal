@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @PawanMudgal.
-- 💞️ I’m looking to collaborate on Ongoing Projects. 
 - 📫 How to reach me pawanmudgal11@gmail.com
 
 
